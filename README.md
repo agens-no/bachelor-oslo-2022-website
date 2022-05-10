@@ -1,5 +1,4 @@
-# Kudos
-### Utfordre deg selv med andre!
+# Kudos – Utfordre deg selv med andre!
 
 De fleste av oss har noe vi ønsker å bli flinkere til. Kanskje du mangler motivasjon til å bevege deg mer, eller ønsker du å meditere oftere? Kudos gjør det enkelt å opprette en utfordring og få med deg kolleger, venner eller familie!
 
